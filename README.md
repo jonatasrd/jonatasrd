@@ -9,5 +9,5 @@
   - [twitter](https://twitter.com/jonatasrd "@jonatasrd")
   - [linkedin](https://www.linkedin.com/in/jonatasrd/ "@jonatasrd")
 - 😄 Pronouns: He/Him.
-- ⚡ Fun fact: I like to ride moutain bike 🚵🏻‍♂️ on weekends and take some pictures. 
+- ⚡ Fun fact: I like to ride mountain bike 🚵🏻‍♂️ on weekends and take some pictures. 
 
